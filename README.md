@@ -176,7 +176,7 @@ status: infected
 ![IMG_20250410_030543_905](https://github.com/user-attachments/assets/a8334dea-650b-46bc-b4be-e0729ba6ce0b)
 
 ---
-status: dead 
+status: infected 
 
 ## Simon 💛
 ![IMG_20250410_030830_979](https://github.com/user-attachments/assets/7fc1a549-e079-43b0-85b0-36868db9aebb)
@@ -292,3 +292,6 @@ status: alive
 ![IMG_20250410_143424_889](https://github.com/user-attachments/assets/a59e4129-d4a4-433c-8ef6-47514acb671e)
 ![IMG_20250410_143429_554](https://github.com/user-attachments/assets/f453ee56-9377-4d02-85c0-96adb9d21ca7)
 ![IMG_20250410_143434_27](https://github.com/user-attachments/assets/14f489c1-cb9b-4ee7-97e5-3a1a43eacbf1)
+
+---
+status: infected 
