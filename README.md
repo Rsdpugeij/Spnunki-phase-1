@@ -253,3 +253,42 @@ status: infected
 ## Pinki 🩷🐰
 ![IMG_20250410_033503_843](https://github.com/user-attachments/assets/a7fc0e3f-c78d-46d7-adeb-1443d6a0eba9)
 ![IMG_20250410_033522_126](https://github.com/user-attachments/assets/aff04420-5600-4d86-a8d0-585d12c76175)
+![IMG_20250410_142600_466](https://github.com/user-attachments/assets/15b61e6a-1904-4f84-aafd-39c3dd05c6df)
+![IMG_20250410_142618_195](https://github.com/user-attachments/assets/151bf1d0-66d2-4594-b092-855634059185)
+![IMG_20250410_142649_300](https://github.com/user-attachments/assets/500e9764-b188-4d75-b096-b0c93ccd72c6)
+![IMG_20250410_142656_301](https://github.com/user-attachments/assets/530136e6-7678-4ab7-86bc-a38f566bf1b5)
+![IMG_20250410_142707_845](https://github.com/user-attachments/assets/df2de0dd-bc61-4dc5-97f6-375b355d86cc)
+![IMG_20250410_142712_617](https://github.com/user-attachments/assets/bc435f05-1f4c-4b06-8cd8-9ddbabf86ac3)
+
+---
+status: dead 
+
+## Jevin 💙🕵️‍♂️
+![IMG_20250410_142932_782](https://github.com/user-attachments/assets/41efb6ea-c57e-412b-ae0c-10e84f952f9a)
+![IMG_20250410_142937_942](https://github.com/user-attachments/assets/edabddb7-ed96-4651-80cd-f1922e7f0fcd)
+![IMG_20250410_142942_580](https://github.com/user-attachments/assets/c4b6e598-e1c5-4d7f-90fd-e594b19edc79)
+![IMG_20250410_142947_311](https://github.com/user-attachments/assets/c2487630-4dde-46d1-bef8-49fd2c7b5898)
+![IMG_20250410_142956_239](https://github.com/user-attachments/assets/55ad6384-47f1-40d0-b3cd-0ef057f1d810)
+![IMG_20250410_143002_977](https://github.com/user-attachments/assets/bff83af3-70c9-4691-969a-95a80a482a92)
+![IMG_20250410_143028_450](https://github.com/user-attachments/assets/05ba4bc2-79a9-4b94-b577-537792383258)
+![IMG_20250410_143038_642](https://github.com/user-attachments/assets/2a67088f-6d53-4a39-add1-814e5accfa58)
+![IMG_20250410_143043_909](https://github.com/user-attachments/assets/1f06ab82-cc15-48b1-ba9e-7a55b0760e11)
+![IMG_20250410_143049_138](https://github.com/user-attachments/assets/7c53dea3-f02e-42ca-b325-f5b8aed7dcc2)
+![IMG_20250410_143052_969](https://github.com/user-attachments/assets/aab01635-e95e-4ef5-bb29-7f3b801c86be)
+
+---
+status: alive 
+
+## Black 🖤 😑😈👹
+![IMG_20250410_143213_342](https://github.com/user-attachments/assets/54312389-59b1-4378-a25f-4b9493101bc3)
+![IMG_20250410_143230_259](https://github.com/user-attachments/assets/4dec96d2-dc2c-4510-b3cf-dd0bdf4f6774)
+![IMG_20250410_143238_8](https://github.com/user-attachments/assets/1678a7a9-8ae4-45ec-926e-bc617fe6b8cb)
+![IMG_20250410_143244_823](https://github.com/user-attachments/assets/bc527923-e534-41b1-a1ea-14cc870b3f46)
+![IMG_20250410_143251_495](https://github.com/user-attachments/assets/5cb9da55-1ffb-4809-bf7f-cc46aec6adec)
+![IMG_20250410_143258_708](https://github.com/user-attachments/assets/02164417-c4c5-4ff9-8850-702c4110b598)
+![IMG_20250410_143309_441](https://github.com/user-attachments/assets/4e822687-6c58-4cfc-951a-2ff72e2d4286)
+![IMG_20250410_143314_541](https://github.com/user-attachments/assets/59890870-544b-4053-bf18-31fef3883f55)
+![IMG_20250410_143318_558](https://github.com/user-attachments/assets/50678bac-a2b7-4e26-a492-d683c09ac9ee)
+![IMG_20250410_143424_889](https://github.com/user-attachments/assets/a59e4129-d4a4-433c-8ef6-47514acb671e)
+![IMG_20250410_143429_554](https://github.com/user-attachments/assets/f453ee56-9377-4d02-85c0-96adb9d21ca7)
+![IMG_20250410_143434_27](https://github.com/user-attachments/assets/14f489c1-cb9b-4ee7-97e5-3a1a43eacbf1)
